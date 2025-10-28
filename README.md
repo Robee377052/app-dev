@@ -5,7 +5,7 @@ My first repository
 ## Why I Love It
 - Fast cars 
 - Deep meanings 
-- Awesome actorsqqqqqqqqqqqqqqqqqqqqqqq 
+- Awesome actors
 
 
 
